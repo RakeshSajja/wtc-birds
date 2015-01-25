@@ -1,1 +1,0 @@
-Read below instructions carefully before use :
